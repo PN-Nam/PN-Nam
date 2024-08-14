@@ -4,6 +4,6 @@ Hi i am Nam Nam Peter.
 - 💞️ I’m looking to collaborate on in any web development projects 
 - 📫 Email @ pnnam8@gmail.com,or whatsapp 0769001308
   
-- ⚡ Fun fact:code the sadnes away
+- ⚡ Fun fact:code the sadness away
 
 
